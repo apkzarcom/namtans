@@ -4,9 +4,9 @@
 
 <div align="center">
 
-<h3>DOWNLOAD 1 >>> <a href="https://teeasianyam.web.app?sq=Find Diamonds ">DOWNLOAD Find Diamonds  </a></h3><br>
+<h3>DOWNLOAD 1 >>> <a href="https://1mody.com/find-diamonds-for-mine-and-craft/">DOWNLOAD Find Diamonds  </a></h3><br>
 
-<h3>DOWNLOAD 2 >>> <a href="https://teeasianyam.web.app?sq=Find Diamonds  ">Find Diamonds   DOWNLOAD </a></h3>
+<h3>DOWNLOAD 2 >>> <a href="https://1mody.com/find-diamonds-for-mine-and-craft/">Find Diamonds   DOWNLOAD </a></h3>
 
 </div>
 
